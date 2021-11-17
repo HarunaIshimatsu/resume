@@ -98,6 +98,5 @@
 ## 課外活動
 
 * [学生時代の制作物](https://1ds10165g.wixsite.com/portfolio/portfolio)
-* [note](https://note.com/haruna_new_elite)
 * [Webメディアでのインスタグラムの投稿掲載](https://nlab.itmedia.co.jp/nl/spv/2011/28/news006.html)
 * [Webメディアでのインスタグラムの投稿掲載](https://curazy.com/archives/274607)
